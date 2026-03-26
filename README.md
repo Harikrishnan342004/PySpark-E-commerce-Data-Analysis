@@ -10,7 +10,7 @@ Top-N Product Recommendations
 
 
 
-9️⃣ Next Upgrade (Very Important for Your Career)
+9️⃣ Next Upgrade (Very Important for Your Career).
 
 RAW DATA
    ↓
